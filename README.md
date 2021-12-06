@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ZeroxDigest
-- 👀 MediaDAO Aggregating with unbias tacticts to direct power to the righterous individual a, Tech Indusry Publication Acrhviing Journal Review.
+- 👀 MediaDAO aggregating on chain unbias across a proposed collection of sourced outlets with an intention to direct power toward the righterous individual while community orchestrates  DeFi, DAOS, News, Tech Tablet Publication Acrhviing Journal Review.
 - 📫 How to reach me ... 0xDigest.com
 
 <!---
